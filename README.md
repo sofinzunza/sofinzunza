@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @sofinzunza.
+- 👀 I’m interested in create web pages.
+- 🌱 I’m currently studying in ingeniería en informática.
+- 📫 How to reach me sofia.inzunzalara@gmail.com
